@@ -1,3 +1,3 @@
 # helloworld
-amalthomas
+amal
 1234
