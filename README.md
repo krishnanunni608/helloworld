@@ -1,3 +1,3 @@
 # helloworld
-da mwonee ath lockaa ingguporuuuuu.shammi.jpg thararararraaaa
+da mwonee ath lockaa ingguporuuuuu.shammi thararararraaaa
 
